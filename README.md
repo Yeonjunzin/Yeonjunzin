@@ -1,5 +1,5 @@
 <p align="center">
-# 𝒀𝒆𝒐𝒏𝒋𝒖𝒏 / 𝑺𝒌𝒚𝒍𝒂𝒓 - %!
+# 𝒀𝒆𝒐𝒏𝒋𝒖𝒏 / 𝑵𝒊𝑲𝒊 - %!
 
 <!--
 **Yeonjunzin/Yeonjunzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
