@@ -20,7 +20,7 @@
 
 <p align="center">
 ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ɪᴠᴀɴ / ᴢʏᴍᴇ </p>
-<p align="center"> <a href="https://skylitc.carrd.co/"> carrd
+<p align="center"> <a href="https://yxwnxzn.carrd.co"> carrd
 <a>
 
 <br>
