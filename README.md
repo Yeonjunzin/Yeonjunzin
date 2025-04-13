@@ -1,5 +1,5 @@
 <p align="center">
-# 𝒀𝒆𝒐𝒏𝒋𝒖𝒏 / 𝑵𝒊𝑲𝒊 - %!
+# 𝒀𝒆𝒐𝒏𝒋𝒖𝒏 / 𝑲𝒊 - %!
 
 <!--
 **Yeonjunzin/Yeonjunzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -19,7 +19,7 @@
 <img width="550" src="https://i.pinimg.com/736x/67/36/66/673666bf1487fc0544ab550ce45a65ba.jpg">
 
 <p align="center">
-ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ɪᴠᴀɴ / ᴢʏᴍᴇ </p>
+ᴄᴀɴ ᴀʟsᴏ ᴄᴀʟʟ ᴍᴇ ʜᴇᴇsᴇᴜɴɢ / ᴢʏᴍᴇ </p>
 <p align="center"> <a href="https://yxwnxzn.carrd.co"> carrd
 <a>
 
